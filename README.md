@@ -1,3 +1,3 @@
 Yo this is Gaelach  
-He/they pronouns  
+She/they pronouns  
 Aro/Ace
